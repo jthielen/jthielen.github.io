@@ -14,3 +14,6 @@
 - Have the entirety of your statements relate to how your experience and plans exemplify intellectual merit and broader impacts as defined by the NSF solicitation...but don't forget to include subheaded summaries of each specifically.
 - Your space is very limited, but don't cram. It is more important that your formatting is comfortable for the reviewer than it is to state every detail (think about what the reviewers are experiencing as they review these).
 - Reference letters are extremely important. Make sure they complement the rest of your application materials by giving helpful prompts to your references and providing them GRFP-focused tips.
+
+[**My Statement Examples**](https://drive.google.com/drive/folders/1SGd89Ncd1yGtE1VbrPuAWeyUwOlK6rui?usp=sharing)
+
